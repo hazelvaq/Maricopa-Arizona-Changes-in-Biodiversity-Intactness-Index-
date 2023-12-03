@@ -1,1 +1,1 @@
-# Maricopa-Arizona-Changes-in-Biodiversity-Intactness-Index-
+# Maricopa-Arizona-Changes-in-Biodiversity-Intactness-Index
